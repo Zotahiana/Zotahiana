@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 🔭 Hi, I'm Zo-tahina from SAYNA. It's digital school to learn all digitals jobs with a good family spirit and game away.
+- 🔭 Hi, I'm Zo-tahiana from SAYNA. It's digital school to learn all digitals jobs with a good family spirit and game away.
 - 🌱 I’m interested a code but i'm not developer, sorry!
 - 👯 I’m currently learning all things about development and specifically how to learn it.
 - 🤔 I’m looking to collaborate on many projects to see all methodoly development in the world, good luck for me!
